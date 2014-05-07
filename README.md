@@ -36,11 +36,18 @@ Michi Ramen - ($15) - Doesn't have a wait like Tatsuya and has more unique ramen
 
 * Salt & Time - ($30) - butcher shop that's also a small restaurant. Good artisanal meats, Texas style. I do not recommend the oft-lauded beef fat donut.
 
+* Cafe Josie - ($30) - Get the redfish and molten chocolate cake.
+
+* Mandola's Market - ($18) - Try whatever the special is.
+
 ## Austin Staples
 
 * Homeslice - NY style pizza
 * East Side Pies - Good pizza with quality toppings
 * Litte Deli - mmmmmm
+
+* Whataburger - local burger chain. Get fat.
+* P. Terry's - local local burger chain. Get a double cheeseburger and a veggie burger with bacon. 
 
 * Lamberts - ($50) - Most of the food here is over-priced and under-delivers. But if you stick to the higher-end items, the quality rises to meet the price. I'd go for lunch and avoid it for dinner. Oh, and get the mac & cheese and the ribeye.
 
